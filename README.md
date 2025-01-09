@@ -1,7 +1,7 @@
 # 👋 Hello, I'm Zheef!  
 
 ### 🌟 Welcome to My GitHub Profile!  
-I'm a passionate developer who loves creating innovative solutions and exploring the endless possibilities of code. Let's build something amazing together! 🚀  
+hallo, namaku zalfa dan aku masih pemula hehe  
 
 ---
 
